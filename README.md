@@ -6,7 +6,9 @@
 
 3. Kto z Belfastem na piwko po pracy nie chodzi, ten swojej karierze szkodzi ❚█══█❚
 
-#Mądrości Elbląskie
+4. Kogo nie ruszają czerwone buildy, tego penis będzie gnilny.
+
+#Lamentancje Projektowe
 
 1. Z dawania dupy uczyniłem sport ❚█══█❚
 

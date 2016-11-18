@@ -6,18 +6,21 @@
 
 3. Kto z Belfastem na piwko po pracy nie chodzi, ten swojej karierze szkodzi ❚█══█❚
 
-4. Programiści powinni ogarniać, a nawet nie domykają lodówki ❚█══█❚
+4. Z dawania dupy uczyniłem sport ❚█══█❚
 
-5. Jezeli alkohol nie rozumie twoich problemów, to znaczy ze za mało go używasz ❚█══█❚
+5. Wszedzie jestes w dupie ❚█══█❚
 
-6. Nie jestem pesymistą, jestem profesjonalnie sceptyczny ❚█══█❚
+6. Tak naprawde wszystko chuj ❚█══█❚
 
-7. Co to kurwa? Przedszkole? ❚█══█❚
 
-8. Nic nie mam do ludzi kompetentnych ❚█══█❚
+#Ewangelia wg Szymona
 
-9. Z dawania dupy uczyniłem sport ❚█══█❚
+1. Programiści powinni ogarniać, a nawet nie domykają lodówki ❚█══█❚
 
-10. Wszedzie jestes w dupie ❚█══█❚
+2. Jezeli alkohol nie rozumie twoich problemów, to znaczy ze za mało go używasz ❚█══█❚
 
-11. Tak naprawde wszystko chuj ❚█══█❚
+3. Nie jestem pesymistą, jestem profesjonalnie sceptyczny ❚█══█❚
+
+4. Co to kurwa? Przedszkole? ❚█══█❚
+
+5. Nic nie mam do ludzi kompetentnych ❚█══█❚

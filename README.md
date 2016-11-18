@@ -8,7 +8,7 @@
 
 4. Kogo nie ruszają czerwone buildy, tego penis będzie gnilny ❚█══█❚
 
-5. Na awans ten nie zasługuje, kto commity źle nejmuje
+5. Na awans ten nie zasługuje, kto commity źle nejmuje ❚█══█❚
 
 #Lamentancje Projektowe
 

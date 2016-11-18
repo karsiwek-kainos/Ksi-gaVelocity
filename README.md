@@ -6,11 +6,13 @@
 
 3. Kto z Belfastem na piwko po pracy nie chodzi, ten swojej karierze szkodzi ❚█══█❚
 
-4. Z dawania dupy uczyniłem sport ❚█══█❚
+#Mądrości Elbląskie
 
-5. Wszedzie jestes w dupie ❚█══█❚
+1. Z dawania dupy uczyniłem sport ❚█══█❚
 
-6. Tak naprawde wszystko chuj ❚█══█❚
+2. Wszedzie jestes w dupie ❚█══█❚
+
+3. Tak naprawde wszystko chuj ❚█══█❚
 
 
 #Ewangelia wg Szymona

@@ -10,6 +10,8 @@
 
 5. Na awans ten nie zasługuje, kto commity źle nejmuje ❚█══█❚
 
+6. Kto w piątek rpm'kę rozpierdoli, ten żony swej nie zadowoli ❚█══█❚
+
 #Lamentancje Projektowe
 
 1. Z dawania dupy uczyniłem sport (ಥ‸ಥ)

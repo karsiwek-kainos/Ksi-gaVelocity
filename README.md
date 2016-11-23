@@ -12,6 +12,8 @@
 
 6. Kto w piątek rpm'kę rozpierdoli, ten żony swej nie zadowoli ❚█══█❚
 
+7. Kto Platformy nie za mordę nie trzyma, ten ficzuru nie otrzyma ❚█══█❚
+
 #Lamentancje Projektowe
 
 1. Z dawania dupy uczyniłem sport (ಥ‸ಥ)

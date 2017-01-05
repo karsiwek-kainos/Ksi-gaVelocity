@@ -1,7 +1,9 @@
 #Księga Velocity
 > mam wrażenie, że kainos jest taką szkołą w której obok normalnych uczniów uczą  się też niedorozwinięci, ale z poprawności politycznej traktuje się wszystkich tak samo
 > ~MK
+
 ---
+
 1. Kto fixem aplikację psuje, ten chujem zalatuje ❚█══█❚
 
 2. Kto zdeployuje złą paczkę, ten dostanie wkrótce sraczkę ❚█══█❚

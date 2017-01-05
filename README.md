@@ -1,6 +1,5 @@
 #Księga Velocity
 > mam wrażenie, że kainos jest taką szkołą w której obok normalnych uczniów uczą  się też niedorozwinięci, ale z poprawności politycznej traktuje się wszystkich tak samo
-> ~MK
 
 ---
 

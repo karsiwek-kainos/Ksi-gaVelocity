@@ -37,3 +37,5 @@
 4. Co to kurwa? Przedszkole? 凸 (｀0´)凸
 
 5. Nic nie mam do ludzi kompetentnych 凸 (｀0´)凸
+
+6. Nie piję z ludźmi których nie szanuję 凸 (｀0´)凸
